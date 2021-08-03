@@ -1,1 +1,1 @@
-## I`m trying to write instructions for a computer
+## I`m trying to write instructions for computers
