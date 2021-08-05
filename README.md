@@ -1,1 +1,1 @@
-## ⭐ I`m writing stuff ⭐
+## ⭐ I write stuff ⭐
